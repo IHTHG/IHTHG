@@ -4,6 +4,7 @@ i dont have many projects yet, but im going to try to start some new ones.
 im planing on working on a small development studio with a friend; High Soules(HS)
 latter ill probably use github for small projects.
 
+-
 
 anyways, if you would like to contact me, there are two ways.
 
@@ -11,9 +12,12 @@ anyways, if you would like to contact me, there are two ways.
    
    Gmail: contactcodahere@gmail.com (not often checked)
    
+-
 
 i also have a youtube if you want to check that out.
 
   YT: https://www.youtube.com/@IHTHG/videos
+
+-
 
 thanks for stoping by, have a good one friends. :>
