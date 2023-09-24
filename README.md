@@ -6,11 +6,11 @@ latter ill probably use github for small projects.
 
 anyways, if you would like to contact me, there are two ways.
 
-     Discord: User: IHTHG, Display: Coda (preferred)
-     Gmail: contactcodahere@gmail.com (not often checked)
+   Discord: User: IHTHG, Display: Coda (preferred)
+   Gmail: contactcodahere@gmail.com (not often checked)
 
 i also have a youtube if you want to check that out.
 
-     YT: https://www.youtube.com/@IHTHG/videos
+  YT: https://www.youtube.com/@IHTHG/videos
 
 thanks for stoping by, have a good one friends. :>
