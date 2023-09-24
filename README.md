@@ -4,11 +4,13 @@ i dont have many projects yet, but im going to try to start some new ones.
 im planing on working on a small development studio with a friend; High Soules(HS)
 latter ill probably use github for small projects.
 
+
 anyways, if you would like to contact me, there are two ways.
 
    Discord: User: IHTHG, Display: Coda (preferred)
    
    Gmail: contactcodahere@gmail.com (not often checked)
+   
 
 i also have a youtube if you want to check that out.
 
